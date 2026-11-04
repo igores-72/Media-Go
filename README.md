@@ -211,4 +211,4 @@ Media Go is offered as a **full free version** with all features and updates inc
 Don't miss out on enhancing your multimedia experience! Download Media Go now and unlock the full potential of your Sony devices!
 
 ---
-**Last updated:** 2026-11-04 16:59:43 UTC
+**Last updated:** 2026-11-04 22:33:26 UTC
